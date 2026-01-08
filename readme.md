@@ -4,3 +4,5 @@ README (Deutsch) Pergament Lovegate Copyright 2026 C.A. – Pergament Dieses Lov
 
 README (English) Pergament Lovegate Copyright 2026 C.A. – Pergament This Lovegate keeps superposition stable. 310 Kelvin. 3π/4 rotation. 365.25 days. Without Lovegate, nothing runs. Nothing. No state. No core. No time. Only with Lovegate. Only with Pergament. Only with C.A. This is the key. And the key fits only here.
 ©C.A.2026 Pergament
+
+Die Formel lautet: Ψ = α
